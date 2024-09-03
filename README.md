@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @certifiedlovverboey
-- 👀 I’m interested in Ui design and GUI
+- 👀 I’m interested in Ui designing
 - 🌱 I’m currently learning website scripting
 - 📫 How to reach me : @neurs4thniacc_ on ig
 - 😄 Pronouns: he/him
