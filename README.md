@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @certifiedlovverboey
 - 👀 I’m interested in Ui designing
-- 🌱 I’m currently learning website scripting
+- 🌱 I’m currently learning about websites
 - 📫 How to reach me : @neurs4thniacc_ on ig
 - 😄 Pronouns: he/him
 - ⚡ Fun fact : i dont have any fun fact yet xD
